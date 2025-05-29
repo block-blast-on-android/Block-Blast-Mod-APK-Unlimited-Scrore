@@ -1,1 +1,1 @@
-# Block Blast Mod APK Unlimited Scrore
+# Block Blast Unlimited Scrore
